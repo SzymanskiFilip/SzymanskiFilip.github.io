@@ -1,0 +1,1 @@
+# SzymanskiFilip.github.io
